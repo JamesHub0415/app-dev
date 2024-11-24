@@ -29,7 +29,7 @@ A teenager, discovers he has the ability to **teleport (or "jump")** anywhere in
 
 ### **Rating**  
 ⭐ **6.1/10** (IMDb)  
-⭐ **44%** (Rotten Tomatoes)  
+⭐ **15%** (Rotten Tomatoes)  
 
 ---
 
